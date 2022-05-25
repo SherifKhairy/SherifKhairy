@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @SherifKhairy
+- 👀 I’m interested in Football, Business, Data, and my actual career.. the Oil & Gas Industry.
+- 🌱 I’m currently learning about data analysis and programming, and I'm really interested to try my hand on different projects.
+- 💞️ I’m looking to collaborate on any interesting data analysis projects, I believe I'm quite the fast learner, and a bit fun to work with as well.
+- 📫 You can reach me here, or on email >> sherifmkhairy@gmail.com
